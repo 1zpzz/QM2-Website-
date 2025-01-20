@@ -1,1 +1,1 @@
-# QM2-Website-
+# QM2 School Shooting Project
